@@ -1,0 +1,2 @@
+# Sikka
+New Era Currency
